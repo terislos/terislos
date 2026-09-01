@@ -7,6 +7,8 @@ Soy **Ingeniero en Informática, Tech Lead y Software Engineer**. Durante más d
 Puedes conocer mi experiencia, proyectos y trayectoria aquí:
 
 ### [Visitar mi portfolio](https://solsiret-gucklw5v.manus.space)
+<img width="768" height="240" alt="image" src="https://github.com/user-attachments/assets/2e6a2fa5-4583-4291-ba68-291f3f29de7c" />
+
 
 ## En qué trabajo
 
